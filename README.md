@@ -14,6 +14,7 @@ Non formulo diagnosi mediche e non prescrivo farmaci. Quando è necessaria una d
 
 - Formazione in osteopatia.
 - M.C.B., Massaggiatore e Capo Bagnino degli stabilimenti idroterapici.
+- Certificazione ISSA Italia, *Certified Personal Fitness Trainer CFT 1*, livello avanzato, 14 giugno 2013.
 - Laurea triennale in Scienze e Tecniche Psicologiche. Questo titolo non equivale all’abilitazione alla professione di psicologo.
 
 ## Progetti digitali
