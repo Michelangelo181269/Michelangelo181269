@@ -10,9 +10,11 @@ Su opudendo.it pubblico contenuti informativi sul dolore pelvico e sul nervo pud
 
 Non formulo diagnosi mediche e non prescrivo farmaci. Quando è necessaria una diagnosi o una valutazione specialistica, l’orientamento è verso il professionista competente.
 
-## Formazione
+## Formazione e qualifiche
 
-Laurea triennale in Scienze e Tecniche Psicologiche. Questo titolo non equivale all’abilitazione alla professione di psicologo.
+- Formazione in osteopatia.
+- M.C.B., Massaggiatore e Capo Bagnino degli stabilimenti idroterapici.
+- Laurea triennale in Scienze e Tecniche Psicologiche. Questo titolo non equivale all’abilitazione alla professione di psicologo.
 
 ## Progetti digitali
 
